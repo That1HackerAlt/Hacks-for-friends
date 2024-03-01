@@ -1,1 +1,1 @@
-# Hacks-for-friends
+# School-hacks-for-people-who-need-it
